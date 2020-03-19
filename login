@@ -1,1 +1,1 @@
-sixpa sixcheats S-1-5-21-822451478-2388952030-43825183-1001
+sixpa sixcheats
